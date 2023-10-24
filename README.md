@@ -12,7 +12,7 @@ https://jaycossey.github.io/responsive-portfolio/
 
 - Email (Preferred): jaycossey@live.com
 
-- Mobile: +447851739554
+- Mobile: Availiable on request
 
 - LinkedIn: https://www.linkedin.com/in/ian-scott-6112ba258/
 
